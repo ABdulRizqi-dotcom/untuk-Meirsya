@@ -1,2 +1,0 @@
-# untuk-Meirsya
-untuk kamu
